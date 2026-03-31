@@ -4,6 +4,7 @@
 
 [🌐 官网主页](https://lightningxvpn.com/cn/) · [⬇️ 立即下载](https://lightningxvpn.com/cn/download/)
 
+免费3天VIP权益邀请码：88888888
 ---
 
 ## 为什么很多用户会先从闪连VPN开始？
